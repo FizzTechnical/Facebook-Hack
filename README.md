@@ -2,7 +2,7 @@
 How To Hack Facebook Easily ? Everyone Want This Process How To Do That.
 Guy's it's Easy. See My Video tutorial and Go Step by Step. Im Sure You Done it 100%
 # How To Hack Any Facebook Use This Tips
-# By # Fizz Technical
+# By - Fizz Technical
 
 
 # Step by Step How To Hack Facebook ?
